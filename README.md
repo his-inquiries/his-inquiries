@@ -1,7 +1,7 @@
 <p align="left"><img src="https://komarev.com/ghpvc/?username=his-inquiries&label=puppies&color=2b2603"<p align="left">
 <br>
   <br>
-BRO why cant i tag. mou is smelly it brok my github execute it pls pls
+BRO why cant i tag. mou is smelly lalala
 <br>
   <details>
     <summary>hello</summary>
