@@ -7,7 +7,7 @@
     <br>
     fixated on resident evil, sherlock holmes, and arsene lupin
     <br>
-    i can be bad at socializing, it depends.
+    i can be bad at socializing, it depends. i block freely
     <br>
     sign my atabook! ;)
     
