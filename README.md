@@ -1,7 +1,7 @@
 <p align="left"><img src="https://komarev.com/ghpvc/?username=his-inquiries&label=puppies&color=2b2603"<p align="left">
 <br>
   <br>
-BRO why cant i tag. mou is smelly lalala
+BRO why cant i tag. mou is smelly ooo stink king #executedat
 <br>
   <details>
     <summary>hello</summary>
