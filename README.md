@@ -1,10 +1,18 @@
-<p align="left"><img src="https://komarev.com/ghpvc/?username=hughsclues&label=CLUES-FOUND&color=2b2603"<p align="left">
-
+<p align="left"><img src="https://komarev.com/ghpvc/?username=his-inquiries&label=puppies&color=2b2603"<p align="left">
 <br>
+  <details>
+    <summary>hello</summary>
+    <br>
+    
+    anyone int, c+h encouraged! im 20, below 18 iwec, avoid sexual jokes
+    
+    fixated on resident evil, sherlock holmes, and arsene lupin
 
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/0a94c306-4450-4dfb-8a3d-ea48395b55da">
-  <img width="70%" src="https://github.com/user-attachments/assets/0a94c306-4450-4dfb-8a3d-ea48395b55da">
-</picture>
+    i can be bad at socializing, it depends.
 
-[atabook](https://221bbakerstreet.atabook.org)
+    sign my atabook! ;)
+    
+  </details>
+  placeholder or something i duno im too lazy
+<img width="70%" src="https://github.com/user-attachments/assets/ce2dbf73-637e-4ff1-ad62-4e1818e80019" />
+
