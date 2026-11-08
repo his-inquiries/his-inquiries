@@ -3,13 +3,12 @@
   <details>
     <summary>hello</summary>
     <br>
-    
     anyone int, c+h encouraged! im 20, below 18 iwec, avoid sexual jokes
-    
+    <br>
     fixated on resident evil, sherlock holmes, and arsene lupin
-
+    <br>
     i can be bad at socializing, it depends.
-
+    <br>
     sign my atabook! ;)
     
   </details>
