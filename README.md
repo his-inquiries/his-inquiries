@@ -1,7 +1,8 @@
 <p align="left"><img src="https://komarev.com/ghpvc/?username=his-inquiries&label=puppies&color=2b2603"<p align="left">
 <br>
+  <br>
+BRO why cant i tag. mou is smelly it brok my github execute it pls pls
 <br>
-  @geikomi is smelly
   <details>
     <summary>hello</summary>
     <br>
@@ -16,4 +17,3 @@
   </details>
   placeholder or something i duno im too lazy
 <img width="70%" src="https://github.com/user-attachments/assets/ce2dbf73-637e-4ff1-ad62-4e1818e80019" />
-
